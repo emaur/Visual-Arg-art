@@ -16,14 +16,6 @@ Myra - Marcus Harvey / obtained
 
 The Holy Virgin Mary - Chris Ofili / obtained
 
+Guernica - Pablo Picasso / obtained
 
-
-Needed:
-
-Ecstatic Unity - Dorothy Iannone 
-
-What is the Proper Way to Display a US Flag? - Dread Scott 
-
-Erased de Kooning Drawing - Robert Rauschenberg
-
-Self - Marc Quinn
+Olympia - Edouard Manet

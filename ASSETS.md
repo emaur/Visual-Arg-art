@@ -18,4 +18,4 @@ The Holy Virgin Mary - Chris Ofili / obtained
 
 Guernica - Pablo Picasso / obtained
 
-Olympia - Edouard Manet
+Olympia - Edouard Manet / obtained

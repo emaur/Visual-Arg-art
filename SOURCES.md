@@ -30,4 +30,6 @@ Myra - Marcus Harvey (1995)
 
 The Holy Virgin Mary - Chris Ofili (1996)
 
+Guernica - Pablo Picasso (1937)
 
+Olympia - Edouard Manet (1863)

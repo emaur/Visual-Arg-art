@@ -33,3 +33,5 @@ The Holy Virgin Mary - Chris Ofili (1996)
 Guernica - Pablo Picasso (1937)
 
 Olympia - Edouard Manet (1863)
+
+Mural - Jackson Pollock (1943)

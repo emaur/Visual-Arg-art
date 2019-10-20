@@ -8,7 +8,7 @@ Statement issued by the board of the Society of Independent Artists. 1917.
     Citation --> Howarth, Sophie, and Jennifer Mundy. “'Fountain', Marcel Duchamp, 1917, Replica 1964.” Tate, 2015.
              --> Francis M. Naumann, The Recurrent, Haunting Ghost: Essays on the Art, Life and Legacy of Marcel Duchamp, New York 2012, pp.70–81.
 
-Quote: “Shocking, abhorrent and completely undeserving of any recognition whatsoeve. Serrano is not an artist. He is a jerk," said Sen. Jesse Helms.
+Quote: “Shocking, abhorrent and completely undeserving of any recognition whatsoeve. Serrano is not an artist. He is a jerk." Said by Senator Jesse Helms (R.N.C).
     
     Citation --> Moore, Tracy. “Conservatives Still Pissed About 'Piss Christ'.” MEL Magazine, 29 Jan. 2019.
 
@@ -19,6 +19,8 @@ Fountain - Marcel Duchamp (1917)
 Piss Christ - Andres Serrano (1987)
 
 Joe, N.Y.C. - Robert Mapplethorpe (1978)
+
+Self Portrait - Robert Mapplethorpe (1983)
 
 The Physical Impossibility of Death in the Mind of Someone Living - Damien Hirst (1991)
 

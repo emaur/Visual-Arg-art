@@ -4,6 +4,8 @@ Piss Christ - Andres Serrano / obtained
 
 Joe, N.Y.C. - Robert Mapplethorpe / obtained 
 
+Self Portrait - Robert Mapplethorpe / obtained
+
 The Physical Impossibility of Death in the Mind of Someone Living - Damien Hirst / obtained
 
 For the Love of God - Damien Hirst / obtained, but unsure if it will be used
